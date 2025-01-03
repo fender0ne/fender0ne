@@ -1,8 +1,5 @@
-> Hi, **@fender0ne** here.   
-  If you want to contact me   
-  just go ahead  
-  I use to check my messages one time a week  
-  I will contact you as soon as possible.  
+> ... Those who care, understand, but don't need to understand to care.
+> ... Those to whom it matters, will understand.
   
 ```text
   The man who asks a question is a fool for a minute, 
