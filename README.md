@@ -1,4 +1,4 @@
-> ... Those who care, understand, but don't need to understand to care.
+> ... Those who care, understand, but don't need to understand to care.  
 > ... Those to whom it matters, will understand.
   
 ```text
